@@ -1,0 +1,3 @@
+- 👋 Oi, obrigado por entrar em contato com o CBT - Clube Baiano de Tiro 
+- O que deseja ?
+- Somos uma empresa voltada para o treinamento de defesa pesoal armada ou não.
